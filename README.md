@@ -2,8 +2,11 @@
 This is a brief to leadership on the impact of the Brazil Election
 
 STRATEGIC INTELLIGENCE ASSESSMENT
+
 SUBJECT
+
 Economic and Political Impacts of the 2026 Brazilian Presidential Election Runoff
+
 Earl DeLauder, Risk and All-Source Analyst
 
 1. EXECUTIVE SUMMARY (BLUF)
